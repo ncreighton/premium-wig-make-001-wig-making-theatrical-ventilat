@@ -1,0 +1,2 @@
+# premium-wig-make-001-wig-making-theatrical-ventilat
+Stop guessing how many knots you've tied or losing track of hair colors mid-build. The Wig Making Theatrical Ventilation Knotting Log turns your ventilation process into a precise, measurable craft — so every production wig is consistent, documented, and ready for stage lights.  This Notion template eliminates the chaos of manual note-taking and fo
